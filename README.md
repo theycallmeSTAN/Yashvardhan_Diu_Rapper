@@ -1,2 +1,2 @@
-# Yashvardhan_Diu_Rapper
+# Yashvardhan Diu Rapper
 DIU &amp; MUMBAI | Desi Hip-Hop Artist | Independent Rapper | Storytelling &amp; Emo Rap | India
